@@ -17,5 +17,4 @@
 ## Links
 - [Github Profile](https://github.com/harshakurra123)
 
-
-
+![image](https://media-exp1.licdn.com/dms/image/C5103AQHO2jMh_vVajA/profile-displayphoto-shrink_400_400/0/1545151738190?e=1648080000&v=beta&t=z_OWAzZLk50pH2mhW-MtUJZLZ4tton9yFeqr3zM2F2g)
